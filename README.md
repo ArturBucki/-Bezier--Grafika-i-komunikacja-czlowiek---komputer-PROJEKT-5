@@ -1,1 +1,1 @@
-# -Bezier--Grafika-i-komunikacja-czlowiek---komputer-PROJEKT-5
+# -Photoshop--Grafika-i-komunikacja-czlowiek---komputer-PROJEKT-5
